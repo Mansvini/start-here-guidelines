@@ -1858,3 +1858,18 @@
 
 - [@Mansvini](https://github.com/Mansvini)
 
+- [@relieyanhilman](https://github.com/relieyanhilman)
+
+- [@Willaims2c](https://github.com/williams2c)
+
+- [@VoltrexMaster](https://github.com/VoltrexMaster)
+
+- [@kabuyeivan](https://github.com/kasmediautamu)
+
+- [@pavloteyfel](https://github.com/pavloteyfel)
+
+- [@FarhanHSN](https://github.com/FarhanHSN)
+
+- [@sbmalik](https://github.com/sbmalik)
+
+- [@Pranav108](https://github.com/Pranav108)
